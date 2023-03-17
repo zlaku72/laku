@@ -1,1 +1,0 @@
-# syedshubha.github.io
